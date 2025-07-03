@@ -1,20 +1,63 @@
 # TestRepo3
 
-There’s a kind of magic in animation that doesn’t quite exist anywhere else. As a kid I grew up watching animated shows practically from the moment I could walk to now in my adult life. 
-What pulls me in is not just the art style or the action—it is the stories. Animation has a way of building entire worlds that feel alive, layered, and real. Shows like Avatar: The Last Airbender didn’t just convey a beautiful overarching story; they constructed unique cultures, histories, and philosophies. Teen Titans wasn’t just about superheroes, it centered itself on the exploration of identity, friendship, and sacrifice in a way that stuck with me long after the screen went black. Even something as lighthearted and silly as Danny Phantom created a protagonist who exists as a living paradox—a Schrödinger's cat suspended between life and death, caught between two worlds and identities. 
-These weren’t stories told through animation, but stories told with animation in mind—crafted to take full advantage of what the medium allows. Animation isn’t just a way to visualize a script; it’s a storytelling tool that can control the very core of the narrative. Animators and artists can warp perception or frame a scene in much different ways than normal film can. My point is that mediums that are used for a creative project are chosen for a reason or design in mind, so when that medium is changed what does that do to the Story? 
-The release of a live action remake of one of my favorite childhood movies How to Train your Dragon spawned the core question of this video. Do remakes add depth to an already established story and specifically Live action remakes. If the answer was determined in the sample size of just How to Train your Dragon, then the answer is it does not add much once so ever. To be honest, the title of the movie is exactly what it is, a live action remake of the original. It was truthfully one of the most honest and faithful adaptations of a story I have seen in some time. The problem is it felt emotionally hollow. The film didn’t deepen my appreciation for the story or its characters, and aside from a few emotionally resonant moments already built into the narrative, it failed to truly move me. That alone doesn’t prove that a remake cannot build upon the original story, and this is only the one film but the reason why I chose How to Train your Dragon as the center example for this question is for two reasons. Number one, Like I said it's the closest remake to the original I have seen making it the easiest to inspect the inner workings of a story in live action form compared to a Lilo and Stitch which has taken the opposite approach and drastically changed the story. Number Two, this is one of the few stories I think could possibly function as a live action film. We have seen other fantasy genres use live action as the medium like Harry Potter or Lord of the Rings and the product of those films have stood the test of time, at least from a visual and technical standpoint. While that is quite a high bar to achieve my point is fantasy can and has worked in live action settings.
-So why did How to Train Your Dragon fall flat, despite the strength of its source material? In my opinion, the remake isn’t bad. Visually, it’s well-designed—the costumes are spot-on, and I actually liked how they reimagined Berk for the live-action adaptation. But the casting was a bit hit or miss. Hiccup, Stoick, and Snotlout were great; they really captured the essence of the characters. Gobber was solid too, though his humor occasionally came off more mean-spirited than sarcastic, which undercut his charm. The twins, though, were honestly a weak point. The acting overall felt inconsistent, which made the tone waver.
-Astrid was the one character who saw notable changes. The remake gave her a clearer motivation—she now has a strong desire to become the next chief. This shift reframes her early disdain for Hiccup as stemming from seeing him as competition rather than just annoyance, which is an interesting choice.
-While the overall story pacing closely followed the original, the pacing within individual scenes often felt rushed. On top of that, the framing choices at times felt overly tight and claustrophobic. A clear example is the opening attack on Berk—it relied heavily on close-up shots of the characters, even as a large-scale battle unfolded around them. This decision limited the viewer's ability to grasp the full scope of the chaos, making the scene feel smaller and less impactful than it should have.
-Lastly the story and themes in the live action are practically shot for shot with the original, following the same character arcs and narrative points. When scrolling through socials, the decision to stick closely to the original is getting glowing reviews praising it for its faithfulness because it is faithful adaptation. Almost every comment on the movie is saying this is the best live action remake ever, which is probably true, but that bar is very low to begin with. 
-It being declared the “best” live action remake is not what I am interested in though. I personally do not care about the dynamics of film making or the argument on how Hollywood is creatively bankrupt with all these remakes. What gets me invested enough to have this channel and even make videos is the beauty of stories and the art of storytelling. 
-To focus on what did the remake added to the story, first and foremost it is a re-telling of the it. Bringing this wonderful tale to a younger audience does add to its value as its message is broadcast over a longer period, adding to its charm as it hopes to garner the endearment of a second generation of children. The remake also attempts to reframe certain characters, as mentioned earlier, particularly by giving Astrid a clearer ambition to become the next chief and by highlighting Snotlout’s desire to earn his father’s respect. These additions aren’t inherently bad—they add depth to the competition dynamic, as Astrid and Snotlout are no longer just participating; they have personal stakes in the outcome.
-However, the execution of these added character arcs feels underdeveloped. For instance, despite Snotlout’s supposed desire for his father's approval, he doesn't seem to take the competition seriously and still spends much of his time trying to impress Astrid, which undermines his motivation. Similarly, while these internal struggles could have added emotional weight and tension, they’re barely explored. The remake only runs about four minutes longer than the original, so there was little extra time used to flesh out these new subplots. As a result, promising character developments end up feeling hollow, since the emotional consequences of that failure are never really addressed. That said, I do understand that this film aims to be comedic, and rightfully so—humor is one of the franchise’s strongest qualities, and Snotlout role serves as a comedic break, but including a more serious struggle for him just seems out of place from the rest of his behavior. 
-The creation of Berk is also changed slightly and the change is that Berk was actual formed from a collection of the best Dragon hunters from different parts of the world, which is fine for an addition, but the architecture and the culture of the island is still Nordic with no introduction of any of the cultures from the other tribes so the idea just feels very shoehorned in to explain some of the different casting choices. 
-Looking at all the additions made in the remake, I’d say it ultimately doesn't bring much new to the story. That’s not to say a remake can’t add value—in fact, I believe it absolutely can. But in this case, it simply didn’t. This version largely retells the same plot with only minor surface-level changes, and while there are hints at deeper character arcs or new thematic threads, they’re not explored in a way that meaningfully expands the narrative.
-Still, this shouldn’t be seen as a condemnation of remakes in general. A remake has the potential to deepen a story—not just through plot adjustments, but through the way the story is told and how the characters are developed. It can bring new perspective, context, and emotional nuance that enrich the original material. The key lies in using the opportunity not just to recreate but to reimagine with intention.
-A truly successful remake doesn’t just retell the original story—it builds upon it. It preserves the core themes, ideas, and characters that made the original resonate, but it goes further by weaving those elements together in fresh and meaningful ways. Rather than simply recreating familiar moments, an improved remake deepens the connections between characters, explores new dimensions of the story, and adds layers of emotional or thematic complexity that the original may have only touched upon. In this way, the remake becomes not just a repetition, but a richer, more nuanced experience that honors the source material while offering something uniquely on its own.
-I truly love the original How to Train Your Dragon and I am glad the remake does honor the original, it’s just my care for the story wants it to be told better and better so I am fine with remakes and retellings as I just want good stories and How to Train your Dragon is a good one. There is potential for Live action remakes to add to the story, we as an audience just have not truly seen it yet. 
-Thank you for watching. I hope you enjoy it, I will be posting bi-weekly, so I hope to see you again at the next one.
+Storytelling Tips for Video Essays
+• Know the Emotional Core
+What is the emotional journey I want the audience to go through — not just the idea I want to explain?
+
+Facts are forgettable — feelings are not. Great storytelling focuses not only on what you're saying, but how it emotionally moves the audience. Before writing, ask yourself what emotional truth you want to explore — awe, sorrow, wonder, grief, joy. Make that your compass.
+
+• Structure Is Story
+Think of your video as a narrative — not a list of points.
+
+A good structure mimics storytelling beats:
+
+Hook – grab attention
+
+Context – introduce the idea
+
+Complication – show tension or a problem
+
+Resolution – deliver your insight
+
+Reflection – leave with a final emotional note
+
+Structure creates rhythm, and rhythm creates emotional payoff.
+
+• Talk to One Person, Not an Audience
+You’re not performing; you’re connecting.
+
+Imagine you’re telling the story to a friend who hasn’t seen the film but would get something meaningful out of your perspective. Keep your tone warm, curious, and intentional — like you’re inviting someone into something you care about.
+
+• Use Small, Human Moments as Emotional Proof
+Don’t just describe ideas — show lived experiences of those ideas.
+
+Instead of summarizing the plot or stating a theme abstractly, use small details that evoke feeling. Let the audience see the emotional truth through specific moments, expressions, and choices made by characters.
+
+• Make Transitions Feel Like Turning a Page
+Don't just jump between points — guide the emotional flow.
+
+Think of each transition as the end of one thought and the beginning of another that builds on it. This keeps the story moving and makes the experience feel cohesive and immersive.
+
+• Leave Space — Don’t Over-Explain
+Silence, pacing, and visuals are part of the story too.
+
+Let certain moments breathe. Let a visual speak without narration. Don’t fill every gap — some of the most powerful storytelling happens between the lines.
+
+• Practice and Learn by Reversing
+Study great essays, storytellers, and narrative writing.
+
+Reverse-outline videos you admire to see how they’re structured.
+
+Try rewriting scenes with different emotional tones.
+
+Read fiction and poetry for emotional language rhythm.
+
+Record yourself telling stories out loud — then refine your voice.
+
+• Shift From Explaining to Storytelling
+Explainers want to be understood. Storytellers want to be felt.
+
+Rather than teaching information, guide your audience through an emotional realization. Storytelling is about transformation — even in an 8-minute video essay about a film.
+
+
 
